@@ -6,7 +6,7 @@
    #. im in many fandoms i mean like you can see me anywhere ,  :33
 
        !! some fandoms im in mostly ,  ; ARCANE aka LEAGUE OF LEGENDS , THE LAST OF US (tlou. , RE,
-      heres many but yeah i cant wrote all of these..
+      theres many but yeah i cant wrote all of these..
 
 _____    -    `  _   ___________   _____
 
