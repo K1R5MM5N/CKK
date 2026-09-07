@@ -1,12 +1,11 @@
 # 🎼 PONYTOWN'S ƇΑΙȽʅყɳ ƘΙɾΑⱮⱮΑɳ  ❕
 
-   .  hi call me caitlyn idm nicknames though im 17 yo,  im mostly afk or offtb, 
-———.  , feel free to int w me , dnc my ponies without my perm , 
+   . ❕ hi call me caitlyn idm nicknames though im 17 yo,  im mostly afk or offtb, 
+———.  , feel free to int w me , dnc my ponies without my perm , im mostly with my gf. 
 
    #. im in many fandoms i mean like you can see me anywhere ,  :33
 
-       !! some fandoms im in mostly ,  ; ARCANE aka LEAGUE OF LEGENDS , THE LAST OF US (tlou. , RE,
-      theres many but yeah i cant wrote all of these..
+       !! some fandoms im in mostly ,  ; ARCANE aka LEAGUE OF LEGENDS , THE LAST OF US (tlou. , RE, SH2, JJBA, NANA, MARVEL, DC, INVINCIBLE, SHERA, THE BLUE EYED SAMURAI, CYBERPUNK, VALORANT, AMONGUS, MINECRAFT, NARUTO, (theres more that includes yuri, yaoi, manwhas and more anime .. 
 
 _____    -    `  _   ___________   _____
 
