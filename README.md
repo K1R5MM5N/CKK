@@ -3,4 +3,4 @@
 _____    -    `  _   ___________   _____
 
 
-![image alt](https://github.com/K1R5MM5N/CKK/blob/7a3ed7f9cacb83bdeaf3d99f36abab7b3a2007fc/IMG_0331.jpeg)
+![image alt](https://github.com/K1R5MM5N/CKK/blob/221a53bb7b1a4efd62b342582a5b8deefd17e4a7/IMG_0334.jpeg)
